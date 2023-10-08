@@ -1,4 +1,4 @@
-![JakeAi](JakeAI/WhatsApp Image 2023-10-08 at 11.38.39 AM.jpeg)
+![JakeAi](https://github.com/nelson123-lab/JakeAI/blob/main/%5Bremoval.ai%5D_8fb385be-b471-422b-b56c-20db23df2ea2-image.png)
 ## Inspiration
 We were inspired to create JakeAi by the desire to help people live better, healthier, and more organized lives. We recognize that people are busy and often don't have the time or energy to figure out how to do everything on their to-do list. JakeAi can help take some of the burden off of people by providing guidance and support on a wide range of topics.
 We were also inspired by the potential of artificial intelligence to make people's lives better. We believe that JakeAi has the potential to be a valuable tool for people of all ages and backgrounds. He can help people learn new things, save time and money, and make their lives easier and more manageable.
